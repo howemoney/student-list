@@ -89,4 +89,4 @@ Event website (MIAMI, December 2021): https://www.dcentralcon.com
 * Franklin Maggay
 
 **Miami, 2021-12-01**
-* ADD YOUR NAME ABOVE HERE
+* Steve Howe - Student
